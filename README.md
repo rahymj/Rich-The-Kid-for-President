@@ -1,1 +1,0 @@
-# Rich-The-Kid-for-President
